@@ -1,2 +1,2 @@
 # nzombies-turned
-haha short
+haha stupid
